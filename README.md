@@ -1,0 +1,2 @@
+# sayang-kamu
+gak tau
